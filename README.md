@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding and developing
 - 🌱 I’m currently learning python dsa 
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me __powerofmos3s__
+- 📫 How to reach me linkedin:arpit turukmaree 
 - 😄 Pronouns: they/dont know me son
 - ⚡ Fun fact: i can CODE 
 
